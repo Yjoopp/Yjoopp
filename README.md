@@ -1,4 +1,4 @@
 - 👋 @Yjoopp
-- 👀 interested in weird things.
-- 🌱 tampering w/ FontCreator.
+- 👀 tampering w/ FontCreator.
 - 📫 2463001906@qq.com
+- 📫 oohrandg@gmail.com
